@@ -1,2 +1,4 @@
 # 11-15-2021
-! [Mac Wallpaper] (https://media.hswstatic.com/eyJidWNrZXQiOiJjb250ZW50Lmhzd3N0YXRpYy5jb20iLCJrZXkiOiJnaWZcL3doeS1pcy1za3ktYmx1ZS5qcGciLCJlZGl0cyI6eyJyZXNpemUiOnsid2lkdGgiOjgyOH0sInRvRm9ybWF0IjoiYXZpZiJ9fQ==)
+![Tokyo 2018](https://user-images.githubusercontent.com/94381250/141841054-a413f393-42ac-4162-b02c-eeca8a62af46.png)
+[Elliot](https://github.com/ElliotMj/crispy-octo-umbrella/edit/main/README.md)</p1>
+[Pearl](https://github.com/PearlJain12/bookish-spork/pulls)
